@@ -1,1 +1,1 @@
-# Electric-Vehicle-Trends-in-Washington
+# Electric Vehicle Trends in Washington
